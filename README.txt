@@ -17,7 +17,7 @@ Location: Philadelphia, PA.
            -------- 
 
 Introduction                         - 
-Protection                           II. 
-Love                                 IX. 
-Trials                               XVIII. 
-Loyalty                              XXXIV. 
+Mojo Bags                            II. 
+Books                                IX. 
+Altar                                XVIII. 
+Chest                                XXXIV. 
